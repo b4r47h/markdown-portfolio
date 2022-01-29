@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. Lodazez
+2. Veedu
+3. Pacheeng Weakling Kunds
+    1.ee
+    2.uu
